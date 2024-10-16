@@ -2,7 +2,7 @@
 privacy policy for my mobile app
 
 
-Privacy Policy for One Liste
+Privacy Policy for LentilleCorailCompany
 
 Privacy Policy
 Last updated: March 12, 2023
